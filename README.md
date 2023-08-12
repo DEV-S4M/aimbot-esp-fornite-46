@@ -20,3 +20,5 @@ Welcome to Luxware - Your Ultimate Gaming Advantage Hub!
 🔒 Top-Notch Security: Your privacy is vital. Our cheats are designed with your safety in mind.
 
 Elevate your gaming now - join Luxware! Dominate, conquer, and ascend. See you in-game! 🚀🎮 
+
+DISCORD: https://discord.gg/94fmwEppDf
